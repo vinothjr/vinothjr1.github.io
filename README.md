@@ -1,1 +1,1 @@
-# vinothjr1.github.io
+# vinothjr.github.io
